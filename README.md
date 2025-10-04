@@ -9,3 +9,5 @@
 
 <p align="center">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=i1je2esxndrf96zzbt62kv7lg&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile">
+
+<p align="center"> free to int n be my friend ! i love meeting new people
