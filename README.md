@@ -1,10 +1,16 @@
-‎<p align="center" dir="auto">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://files.catbox.moe/9e2kig.png">
-   <img align="center" width="500" src="https://files.catbox.moe/9e2kig.png">
-  </a>
-</p>
 <p align="center">
-<img align="center" width="600" src="https://files.catbox.moe/7c2m4c.jpg">
+<img align="center" width="600" src="https://files.catbox.moe/v9i5di.jpg">
+</p>
+
+
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Doto&weight=900&size=28&duration=5005&pause=3000&color=66666F&center=true&width=438&lines=he's+my+man+." alt="Typing SVG" />
+</a>
+</p>‎
+<p align="center" dir="auto">
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://files.catbox.moe/jkq34j.png">
+   <img align="center" width="500" src="https://files.catbox.moe/jkq34j.png">
+  </a>
 </p>
 
 
