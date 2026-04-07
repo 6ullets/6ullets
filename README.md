@@ -13,6 +13,14 @@
   </a>
 </p>
 
+<p align="center">
+────────────────────────
+</p>
+ㅤㅤ
+<p align="center">
+<a href="https://guns.lol/ghostinnull">
+<img width="100" src="https://files.catbox.moe/2pw7oy.png">
+</a>
 
  <div align="center">
   <details>
@@ -24,7 +32,7 @@
 
  </p>‎
 <p align="center"> 
-    <img src="https://komarev.com/ghpvc/?username=6ullets&label=entities&color=291F1D&style=plastic">
+    <img src="https://komarev.com/ghpvc/?username=6ullets&label=recruits&color=88888a&style=plastic">
 
 <p align="center">
 <img align="center" width="400" src="https://files.catbox.moe/1l4x6j.png">
