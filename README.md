@@ -8,8 +8,8 @@
 </a>
 </p>‎
 <p align="center" dir="auto">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://files.catbox.moe/jkq34j.png">
-   <img align="center" width="500" src="https://files.catbox.moe/jkq34j.png">
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://files.catbox.moe/95b9kg.png">
+   <img align="center" width="500" src="https://files.catbox.moe/95b9kg.png">
   </a>
 </p>
 
@@ -26,3 +26,6 @@
 <p align="center"> 
     <img src="https://komarev.com/ghpvc/?username=6ullets&label=entities&color=291F1D&style=plastic">
 
+<p align="center">
+<img align="center" width="400" src="https://files.catbox.moe/1l4x6j.png">
+</p>
