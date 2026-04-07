@@ -14,8 +14,15 @@
 </p>
 
 
+ <div align="center">
+  <details>
+ <summary>meow</summary>
+ eeeee
+</details>
 <p align="center"> 
-<a href="https://github.com/cynicalover">ashswag .‎
+<a href="https://github.com/cynicalover">ashswag .
+
+ </p>‎
 <p align="center"> 
     <img src="https://komarev.com/ghpvc/?username=6ullets&label=entities&color=291F1D&style=plastic">
 
