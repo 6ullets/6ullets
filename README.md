@@ -9,8 +9,8 @@
 </a>
 </p>‎
 <p align="center" dir="auto">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://files.catbox.moe/95b9kg.png">
-   <img align="center" width="500" src="https://files.catbox.moe/95b9kg.png">
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://file.garden/ad5gQNfoF0kAW8gS/assassinduo">
+   <img align="center" width="500" src="https://file.garden/ad5gQNfoF0kAW8gS/assassinduo">
   </a>
 </p>
 <p align="center">
