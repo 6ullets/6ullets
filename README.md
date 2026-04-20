@@ -28,9 +28,27 @@
 </p>
  <div align="center">
   <details>
- <summary>meow</summary>
- eeeee
+ <summary>small info !</summary>
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ 
+<p align="left" dir="auto" >  
+ <img align="left" width="200" src="https://file.garden/ad5gQNfoF0kAW8gS/.png">
+</p> 
+
+<a target="_blank" href="https://file.garden/ad5gQNfoF0kAW8gS/ewnomm">
+ <img align="left" width="200" src="https://file.garden/ad5gQNfoF0kAW8gS/ewnomm"> 
+</a>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
+ <p align="left" dir="auto"> adrianㅤㅤ/ㅤㅤewroonㅤㅤ/ ㅤㅤtheo
+ <p align="left"> c+h welcomed unless with friends
+ ㅤㅤ <p align="left"> ㅤㅤㅤalt ; <a href="https://github.com/theothebaldbird">theothebaldbird
+ 
+ </p>
+</p>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
 </details>
+
 <p align="center"> 
     <img src="https://komarev.com/ghpvc/?username=6ullets&label=recruits&color=88888a&style=plastic">
 
