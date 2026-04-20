@@ -32,7 +32,7 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  
 <p align="left" dir="auto" >  
- <img align="left" width="200" src="https://file.garden/ad5gQNfoF0kAW8gS/.png">
+ <img align="left" width="205" src="https://file.garden/ad5gQNfoF0kAW8gS/.png">
 </p> 
 
 <a target="_blank" href="https://file.garden/ad5gQNfoF0kAW8gS/ewnomm">
