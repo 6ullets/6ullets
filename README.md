@@ -39,7 +39,7 @@
  <img align="left" width="200" src="https://file.garden/ad5gQNfoF0kAW8gS/ewnomm"> 
 </a>
 <p align="left" dir="auto">‎ ‎ ‎ </p>
- <p align="left" dir="auto">ewroonㅤㅤor ㅤㅤtheo
+ <p align="left" dir="auto">ㅤㅤewroonㅤㅤor ㅤㅤtheo
  <p align="left"> c+h welcomed unless with friends
  ㅤㅤ <p align="left"> ㅤㅤㅤalt ; <a href="https://github.com/theothebaldbird">theothebaldbird
  
