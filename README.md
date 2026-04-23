@@ -9,8 +9,8 @@
 </a>
 </p>‎
 <p align="center" dir="auto">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://file.garden/ad5gQNfoF0kAW8gS/assassinduo">
-   <img align="center" width="500" src="https://file.garden/ad5gQNfoF0kAW8gS/assassinduo">
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://file.garden/ad5gQNfoF0kAW8gS/fatass">
+   <img align="center" width="200" src="https://file.garden/ad5gQNfoF0kAW8gS/fatass">
   </a>
 </p>
 <p align="center">
