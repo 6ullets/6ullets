@@ -3,6 +3,13 @@
  <p align="center"> 
 <a href="https://github.com/cynicalover">ashswag .
  </p>‎
+ <p align="center">
+ <a href="https://github.com/piehiker">parrot
+</a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ&ㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://github.com/yvoisen">clownpierce
+</a>
+
 <p align="center">
 <img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/ashwron.jpg"> 
 </p>
