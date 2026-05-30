@@ -1,3 +1,10 @@
+<p align="center">
+<img src="https://file.garden/ad5gQNfoF0kAW8gS/sharpness">
+  <p align="center"> 
+<a href="https://github.com/CONEXlONN">@CONEXION 
+</a>
+BRO HAS NO AURA
+   
 <p align="center"> remaking my page in general or som shit brah
 </p>
  <p align="center"> 
