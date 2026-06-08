@@ -7,9 +7,6 @@ BRO HAS NO AURA
    
 <p align="center"> remaking my page in general or som shit brah
 </p>
- <p align="center"> 
-<a href="https://github.com/cynicalover">ashswag .
- </p>‎
  <p align="center">
  <a href="https://github.com/piehiker">parrot
 </a>
