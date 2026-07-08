@@ -1,3 +1,18 @@
+<p align="center">
+    <a href="https://github.com/CONEXlONN"> sharpness
+    </a>
+        &
+        <a href="https://github.com/piehiker"> parrot
+    </a>
+        ARE JUST JEALOUS THAT IM #THEBIGGESTBIRD
+    </p>
+        <p align="center">
+<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/SMELLY%20PARROT">  
+ㅤㅤㅤㅤㅤㅤㅤ
+<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/SMELLY%20GIRL"> 
+</p>
+
+<p align="center"> +
 
 <p align="center">
     <a href="https://github.com/CONEXlONN"> sharpness
