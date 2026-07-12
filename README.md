@@ -1,4 +1,17 @@
 <p align="center">
+    <a href="https://github.com/CONEXlONN"> DEAR SHARPNESS.
+    </a>
+<p align="center">
+<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/feetttt"> 
+<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/FEET"> 
+</p>
+
+<p align="center">
+<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/PISS%20PUDDLE"> 
+<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/MILK%20BOWL"> 
+<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/SAUCE"> 
+    <img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/HWATEVER%20THI%20IS"> 
+<p align="center">
     <a href="https://github.com/CONEXlONN"> sharpness
     </a>
         &
