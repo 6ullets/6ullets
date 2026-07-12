@@ -2,8 +2,9 @@
     <a href="https://github.com/CONEXlONN"> DEAR SHARPNESS.
     </a>
 <p align="center">
-<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/feetttt"> 
-<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/FEET"> 
+<img height=400 src="https://file.garden/ad5gQNfoF0kAW8gS/feetttt"> 
+<img height=400 src="https://file.garden/ad5gQNfoF0kAW8gS/FEET"> 
+<img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/TOIELT%20FEET"> 
 </p>
 
 <p align="center">
