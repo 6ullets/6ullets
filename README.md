@@ -1,3 +1,6 @@
+ <div align="center">
+  <details>
+ <summary>${\textsf{\color{#AC615D} the famous wall }}$</summary>
 <p align="center">
     <a href="https://github.com/CONEXlONN"> DEAR SHARPNESS.
     </a>
