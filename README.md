@@ -1,3 +1,9 @@
+<p align="center">
+<img src="https://file.garden/ad5gQNfoF0kAW8gS/polarityduo" width="400">
+
+
+<p align="center">
+ $\small\color{#CD957F}{\textsf{ please don't call me " the feet guy " ˊᴖˋ  }}$
  <div align="center">
   <details>
  <summary>${\textsf{\color{#AC615D} the famous wall }}$</summary>
@@ -40,6 +46,5 @@
 <img height=500 src="https://file.garden/ad5gQNfoF0kAW8gS/sharp"> 
 </p>
 ㅤㅤㅤㅤ
-<p align="center"> 
-    <img src="https://komarev.com/ghpvc/?username=6ullets&label=pvpers&color=88888a&style=plastic">
+
 
